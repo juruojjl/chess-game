@@ -20,4 +20,6 @@ Don't worry,your save's password has been secured.
 
 You can wait the game get be released.
 
-# When
+# When jjl release???
+
+Before 2020.
